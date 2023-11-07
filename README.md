@@ -1,4 +1,4 @@
-As the pioneer in the ride-hailing industry, Uber has revolutionized urban transportation globally. Recognizing its success, Zipprr provides a fully-functional<a href="https://zipprr.com/category/uber-clone/"> Uber clone script</a> to help others enter this lucrative space.
+As the pioneer in the ride-hailing industry, Uber has revolutionized urban transportation globally. Recognizing its success, Zipprr provides a fully-functional<a href="https://zipprr.com/uber-clone/"> Uber clone script</a> to help others enter this lucrative space.
 
 <h2><b>Important Features in Uber Clone App</b></h2>
 
